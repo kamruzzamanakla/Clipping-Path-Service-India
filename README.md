@@ -1,2 +1,1 @@
-# Clipping-Path-Service-India
-Kamruzzaman Babu
+Clipping path service is most popular and well known technique to cut out to separate more subject from photo by Photoshop pen tools and replace new image background. As a best clipping path service provider company in Bangladesh we offer all kind of Multi clipping path, cut out image, background remove, background knockout , deep etching service by our expert designer to use pen tools insuring keep your product appropriateness . Get first 3 image for free trial
